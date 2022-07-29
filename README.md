@@ -1,1 +1,1 @@
-# SchoolMArioGurgel
+# SchoolMarioGurgel
